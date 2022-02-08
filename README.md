@@ -16,4 +16,4 @@ Here are some ideas to get you started:
 - 👩‍💻 Web Developer
 - 🥥 Enjoy making stuff / coding / painting
 - 🛠 Algorithm learning
-- 🌲 Pokkomori [https://main.doiptxzztmqs9.amplifyapp.com/]
+- 🌲 Pokkomori [https://main.d3giui8i753jh6.amplifyapp.com]
